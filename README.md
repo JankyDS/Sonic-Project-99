@@ -1,1 +1,1 @@
-# Sonic-Project-99
+# Sonic: Project '99
